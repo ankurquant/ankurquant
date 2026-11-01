@@ -1,4 +1,4 @@
-## Hi there 👋
+
 # 💫 About Me:
 I am currently learning 
 
